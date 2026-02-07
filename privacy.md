@@ -51,4 +51,4 @@ We may update this Privacy Policy from time to time. Changes will be posted on t
 
 ## Contact
 
-Questions about this Privacy Policy? Contact us at: rodneyhughey@yahoo.com
+Questions about this Privacy Policy? Contact us at: rodneyhughey@gmail.com

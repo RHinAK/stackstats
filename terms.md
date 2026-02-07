@@ -52,4 +52,4 @@ These Terms are governed by the laws of the State of Alaska, United States.
 
 ## Contact
 
-Questions? Contact us at: rodneyhughey@yahoo.com
+Questions? Contact us at: rodneyhughey@gmail.com
