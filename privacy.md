@@ -7,7 +7,7 @@ title: Privacy Policy - StackStats
 
 **Last Updated: February 4, 2025**
 
-StackStats ("the App") is developed by Rodney Hughey. This Privacy Policy explains how the App handles your information.
+StackStats ("the App") is developed by StackStats Apps LLC. This Privacy Policy explains how the App handles your information.
 
 ## Data Collection
 
